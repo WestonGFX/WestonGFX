@@ -1,4 +1,4 @@
-Chris Lord @WestonGFX/LordGFX is a ✨ cool ✨ programmer who enjoys coding SaaS, generative art, vaporwave, cyberpunk, lofi, lowpoly 3D art, ai, and crypto!- 
+Chris Lord @WestonGFX/LordGFX is a ✨ cool ✨ programmer who enjoys coding SaaS, generative art, vaporwave, cyberpunk, lofi, lowpoly 3D art, ai, and crypto!
 
 👋 Hi, I’m Chris!
 
